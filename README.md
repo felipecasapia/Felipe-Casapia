@@ -1,1 +1,1 @@
-# Felipe-Casapia
+⚡ Hi, I’m Felipe Marcel! 🖖 I’m a journalist and audiovisual professional, working as a writer in digital journalism. I’m passionate about sports and art. 🏅 I’m interested in collaborating on creative projects and documentaries. 🎥 If you want to connect, feel free to reach out: felipe.casapia@gmail.com. Pronouns: he/him. 🔥 What defines me: I have a magnifying glass for the details in every story.
